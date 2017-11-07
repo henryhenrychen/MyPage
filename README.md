@@ -1,1 +1,1 @@
-A temporary persona; wensite 
+A temporary personal website 
